@@ -61,6 +61,6 @@ A certain merchant put on the towers of his profitable house black cats tails to
 ## Cat Panteleimon
 Ukraine, Kiev
 
-![Branching](cat9a.jpg)
+![Branching](cat10a.jpg)
 
 The monument near the restaurant Pantagruel is placed to a real Persian cat Panteleimon, who died in a fire at the facility in the late 1990s. According to the legend, the cat warned people about danger.
